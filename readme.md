@@ -1,1 +1,1 @@
-<a href="https://miaoice.us.kg">Web</a>
+<a href="https://miaoice.us.kg">Website</a>
